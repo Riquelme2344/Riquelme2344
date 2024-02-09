@@ -1,4 +1,4 @@
-teste
+
 Riquelme é um jovem que brilha com sua personalidade cativante e sua dedicação aos amigos e estudos. No terceiro ano do ensino médio, ele se destaca não apenas por suas habilidades acadêmicas, mas também por sua capacidade de cultivar amizades verdadeiras e sua notável responsabilidade.
 
 Desde cedo, Riquelme demonstrou um talento natural para construir conexões significativas com as pessoas ao seu redor. Sua natureza amigável e sua capacidade de ouvir tornam-no um confidente confiável para todos os seus amigos. Seja para compartilhar alegrias ou enfrentar desafios, Riquelme está sempre presente, oferecendo apoio incondicional e conselhos sábios.
